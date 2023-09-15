@@ -1,0 +1,1 @@
+"Kuch bi" is a Hindi phrase that translates to "anything" or "whatever" in English. It's a casual way of saying that something doesn't matter or that you are open to any option. If you have any specific questions or if there's something specific you'd like to know or discuss, please feel free to ask, and I'll be happy to help!
